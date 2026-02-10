@@ -1,1 +1,1 @@
-# Certificates
+# Certificate cursuri / activitati.
