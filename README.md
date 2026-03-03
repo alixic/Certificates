@@ -1,1 +1,1 @@
-# Certificate cursuri / activitati.
+# Certificate specializare institutii, cursuri, concursuri.
